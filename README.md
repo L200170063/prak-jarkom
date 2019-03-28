@@ -1,1 +1,4 @@
 # prak-jarkom
+
+MAJID NARENEDRA
+L200170063
